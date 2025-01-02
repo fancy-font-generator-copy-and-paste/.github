@@ -1,4 +1,3 @@
-# Fancy Font Generator Copy and Paste: Make Your Text Stand Out  
 
 Do you want to make your text stylish and fun? A **fancy font generator copy and paste** tool is perfect for creating unique and attractive text. Whether you’re writing captions, bios, or comments, this tool can help your words look cooler. It’s free, easy to use, and works for any platform like Instagram, Facebook, or WhatsApp.  
 
